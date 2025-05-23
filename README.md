@@ -19,4 +19,3 @@ As a student Radiologic Technologist, I'm excited to expand my role into direct 
 - Patient Experience Enhancement  
 - Clinical Administrative Support  
 
-Let’s connect and collaborate as I grow further in this dynamic and rewarding field!
